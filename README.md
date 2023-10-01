@@ -1,1 +1,1 @@
-Personal website site for my business.
+Personal website for my business.
